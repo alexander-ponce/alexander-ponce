@@ -9,7 +9,7 @@ Databases: [List of Databases]
 Tools/Platforms: [List of Tools/Platforms]
 
 📫 Contact Me
-- LinkedIn: 
+- LinkedIn: <a href='http://linkedin.com/in/alexponce1'>LinkedIn</a>
 
 
 🌱 I’m currently working with ...
