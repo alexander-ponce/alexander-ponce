@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm Alex, based in Los Angeles but am no stranger to working remote.
+I'm Alex, based in Los Angeles but am no stranger to being remote.
 
 
 📫 Contact Me
