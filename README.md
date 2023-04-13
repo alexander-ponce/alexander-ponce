@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I'm Alex, based in Los Angeles but am no stranger to working remote. I enjoy [Your Interests] and am passionate about [Your Passions]
+I'm Alex, based in Los Angeles but am no stranger to working remote.
 
 
 📫 Contact Me
