@@ -5,7 +5,7 @@ I'm Alex, based in Los Angeles but am no stranger to working remote.
 
 📫 Contact Me
 - LinkedIn: <a href='http://linkedin.com/in/alexponce1'>LinkedIn</a>
-- 
+
 
 
 🌱 I’m currently working with ...
