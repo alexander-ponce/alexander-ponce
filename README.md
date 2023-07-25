@@ -1,4 +1,4 @@
-### Greetings 👋          
+### Greetings 👋           
 
 I'm Alex, based in Los Angeles but am no stranger to being remote.
 
