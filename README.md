@@ -2,7 +2,7 @@
 
 I'm Alex, based in Berkeley but am no stranger to being remote.
 
-
+ 
 📫 Contact Me
 - LinkedIn: <a href='http://linkedin.com/in/alexponce1'>LinkedIn</a>
 
