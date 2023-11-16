@@ -1,6 +1,6 @@
-### Greetings 👋                                                               
+### Greetings 👋                                                                
 
-I'm Alex, based in Berkeley but am no stranger to being remote.
+I'm Alex, based in Berkeley but am no stranger to being remote. My background is in finance and investor relations/client experience, mostly within the fintech space. 
 
  
 📫 Contact Me
